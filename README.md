@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @k-steez
+- 👋 Hi, I’m Kwame Amoah.
 - 👀 I’m interested in astrophysics, nanotechnology, quantum physics and artificial intelligence.
 - 🌱 I’m currently learning computer science and some coding languages.
 - 📫 How to reach me-my twitter @SplendidSonny or instagram @icepappy_k
